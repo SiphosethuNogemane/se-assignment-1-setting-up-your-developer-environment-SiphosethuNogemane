@@ -53,5 +53,3 @@ Submit your document and GitHub repository link through the designated platform 
 
 Note: Feel free to reach out for clarification or assistance with any aspect of the assignment.
 
-COMPLETED ASSIGNMENT LINK
-https://1drv.ms/w/c/74bdc16b3f1cee28/EcFOHp-z5sVKhhCZZIUhTZ4B7BanbpNxuUbfXeON4bmo-Q?e=Ii1t8L
